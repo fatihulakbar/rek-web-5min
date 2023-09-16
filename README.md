@@ -1,1 +1,1 @@
-ini Fatihul Akbar
+ini adalah fatihul akbar
